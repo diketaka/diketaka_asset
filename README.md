@@ -1,0 +1,1 @@
+# diketaka_asset
